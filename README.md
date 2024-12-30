@@ -6,4 +6,4 @@
 
 __won't approach unless for shits & giggles__, i like having a good chuckle.
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=4a578d&style=flat-plastic)
+![](https://komarev.com/ghpvc/?username=guineapirate&color=4a578d&style=flat-plastic)
