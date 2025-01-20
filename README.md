@@ -6,4 +6,5 @@
 
 ![](https://files.catbox.moe/rcze1m.webp) ![](https://files.catbox.moe/z2imai.webp) ![](https://files.catbox.moe/jbgl1g.webp)
 
-**dni - roleplay & ships. you guys pmo.**
+<p align="center">
+dni - roleplay & ships. you guys pmo.
