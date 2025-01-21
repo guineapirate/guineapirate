@@ -9,5 +9,5 @@
 <p align="center">
 dni - roleplay & ships. you guys pmo.
   
-![](https://files.catbox.moe/jbgl1g.webp)
+![](https://files.catbox.moe/jbgl1g.webp) wip
 
