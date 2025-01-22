@@ -1,4 +1,5 @@
-![](https://files.catbox.moe/wzqczp.webp)
+<p align="center"> 
+<img src="https://files.catbox.moe/wzqczp.webp">
 
 🗺️ 】consider yourself welcome. 
 
@@ -6,8 +7,7 @@
 
 ![](https://files.catbox.moe/rcze1m.webp) ![](https://files.catbox.moe/ro1mdh.webp) ![](https://files.catbox.moe/z2imai.webp) 
 
-<p align="center">
-dni - roleplay & ships. you guys pmo.
+     dni - roleplay & ships. you guys pmo.
   
 ![](https://files.catbox.moe/jbgl1g.webp) wip
 
