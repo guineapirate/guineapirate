@@ -9,10 +9,12 @@
 
      dni - roleplay & ships. you guys pmo.
      
-     ![](https://files.catbox.moe/w9t3z6.gif)     dandys world. dniuf
+     ![](https://files.catbox.moe/w9t3z6.gif)    ✙  dandys world. dniuf
      
-
+     𖥔   .    ˙ ![](https://files.catbox.moe/cvju04.gif)    🔬
 <br>    usually offtab  ,  waiting for friends
           
 ![](https://files.catbox.moe/jbgl1g.webp) wip
 
+<p align="center">
+<img src="https://files.catbox.moe/am2tyu.png">
