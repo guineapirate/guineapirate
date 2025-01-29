@@ -14,7 +14,9 @@
      𖥔   .    ˙ ![](https://files.catbox.moe/cvju04.gif)    🔬
 <br>    usually offtab  ,  waiting for friends
           
-![](https://files.catbox.moe/jbgl1g.webp) wip
+     ![](https://files.catbox.moe/jbgl1g.webp) ![](https://files.catbox.moe/4x75ak.webp)
+
+      ⸝<a href="https://rentry.co/carpto">rentry</a>   .   ⸝⸝<a href="https://guineapirate.atabook.org/">ata</a>
 
 <p align="center">
 <img src="https://files.catbox.moe/am2tyu.png">
