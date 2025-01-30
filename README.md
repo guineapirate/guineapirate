@@ -16,7 +16,7 @@
           
      ![](https://files.catbox.moe/jbgl1g.webp) ![](https://files.catbox.moe/4x75ak.webp)
 
-      ⸝<a href="https://rentry.co/carpto">rentry</a>   .   ⸝⸝<a href="https://guineapirate.atabook.org/">ata</a>
+      ⸝<a href="https://rentry.co/carpto">rentry</a>   .   ⸝⸝<a href="https://guineapirate.atabook.org/">‎‎新book</a>
 
 <p align="center">
 <img src="https://files.catbox.moe/am2tyu.png">
