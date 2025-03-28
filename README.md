@@ -8,5 +8,3 @@
 <p align="center"> 
     <img src="https://files.catbox.moe/6x8w6x.png"/>
     
-<h6 align="center">
-@Moiemon @curlyscake @crenzy-rbyi @jujuberii @mybrainisrotting
