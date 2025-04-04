@@ -6,5 +6,5 @@
 <a href="https://rentry.co/carpto">rentry</a>   𖥔.   <a href="https://guineapirate.atabook.org/">‎‎新book</a>
 
 <p align="center"> 
-    <img src="https://files.catbox.moe/6x8w6x.png"/>
+    <img src="https://files.catbox.moe/7rekp9.png"/>
     
