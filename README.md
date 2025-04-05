@@ -1,7 +1,7 @@
 ‎ ‎<p align="center"> 
     <img src="https://files.catbox.moe/ny9so0.png"/>
     
-‎ ‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎‎‎ ‎  ‎‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=guineapirate&color=e7c0a0&style=plastic&label=　｡)   
+‎ ‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎‎‎ ‎  ‎‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=guineapirate&color=eba97c&style=plastic&label=　｡)   
 
 <p align="center"> 
     <img src="https://files.catbox.moe/mtma1k.png"/>
@@ -10,5 +10,5 @@
 
  ‎ ‎ ‎ 
 <p align="center"> 
-    <img src="https://files.catbox.moe/7rekp9.png"/>
+    <img src="https://files.catbox.moe/x47ooh.png"/>
     
