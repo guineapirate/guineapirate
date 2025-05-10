@@ -1,5 +1,5 @@
 ‎ ‎<p align="center"> 
-    <img src="https://files.catbox.moe/3ehk3t.png"/>
+    <img src="https://files.catbox.moe/gxjqtv.png"/>
     
 ‎ ‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎‎‎ ‎  ‎‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=guineapirate&color=55dddb&style=plastic&label=　｡)   
 
@@ -10,5 +10,5 @@
 
  ‎ ‎ ‎ 
 <p align="center"> 
-    <img src="https://files.catbox.moe/1h25b4.png"/>
+    <img src="https://files.catbox.moe/egxii4.png"/>
     
